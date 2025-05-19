@@ -4,6 +4,8 @@
 
 # Grab Your $25000 Cash NOW!
 
+[Grab your chance to win $50k](https://smrturl.co/a/s4f603f7e94/8438?s1=)
+---
 # Win a Caribbean Getaway $25,000
 
 
