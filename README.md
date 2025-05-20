@@ -1,4 +1,4 @@
-[Get $1,000 Grocery Gift Card](https://smrturl.co/a/s4f603f7e94/10718?s1=)
+[Get 7 Eleven Giftcard](https://smrturl.co/a/s4f603f7e94/62?s1=)
 
 
 
