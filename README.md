@@ -1,6 +1,4 @@
-[Get 7 Eleven Giftcard](https://smrturl.co/a/s4f603f7e94/62?s1=)
-
-
+[Win $10,000 for your DREAM VACATION](https://smrturl.co/a/s4f603f7e94/11254?s1=)
 
 # Grab Your $25000 Cash NOW!
 
